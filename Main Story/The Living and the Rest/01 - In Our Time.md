@@ -30,10 +30,32 @@ Sonetto calls Vertin to talk.
 
 ## 1-4 Chicago Rescue
 
+Sonetto is very happy to be invited over to the Suitcase. She never noticed how big inside it was. She tells Vertin she was promoted to help her as the chief assistant. Vertin's responsibilities has also increased. She is now in charge of all the investigations on the Storm and Manus Vindictae.  
+Sonetto brings the next mission: according to the latest historical intelligence, there will be a massacre against arcanists in Chicago on Feburary 14. They need to rescue the victims before human gangsters arrive at the underground parking. This is different from all the missions before, but seems to not go against the porpous of the Foundation, as preventing conflict against the two races would be beneficial for mankind. Also, the forces of Manus expand dramatically each year, and recruiting new arcanists could stop the trend.  
+Vertin sense a scent of oranges on the capsule. Regulus shout for help. Her voice is coming from above. The suitcase is about to be moved by critters.
 
+### An advertisement from the ads page of Wall Street Journal
+
+> If you have a critter, the **Pawnshop** will buy any critters from the cheapest Carbuncles to the expensive Rubberados. They guarantee the best treatment.
+
+## 1-5 Sharpodonty and Black Wine
+
+Since the critter attack, we understand that the tree hole is not save for the Suitcase, so Vertin decides to carry it along the way. Regulus uses the Floppy Disk to split up. Vertin, Sonetto and APPLe mission is in the parking at No. 2122 Lincoln Park Street, two blocks away from them.  
+They arrive at the place one hour before the incident. Sonetto is calculating a good position to wait, when two drunk humans pass by. They engage in a fight to "stun" them. Sonetto and APPLe stun them and conclude that the injuries "meet the requirements of Emergency Defense Code of St. Pavlov Foundation", and they hide them under the car. APPLe is upset because he found a pack of sharpodonties³ in their pocket, and a child's finger.  
+They hear a break sound outside, and 3 gunshots. They are surprised because it's too early, the arcanists haven't got there yet...
+
+### Intermission
+
+> The player find a bottle and is tempted to drink it. I decide to not drink it. The voice tells me to act normally around Vertin and Sonetto, so they don't notice my weir behavour towards the bottle... I ask who it is, it sais hi is a friendly adventurer, like me, and we will meet soon...
+
+## 1-6 The Rosa Killer  
+
+Sonetto finds ??? killing the gangsters, and asks her why she is doing it, which is because they want to kill the arcanists. The man she killed was Frank Gusenberg. Next on the list is Adam Heyer. His weapon is not shooting at ???. Verting rescues Adam. Adam shoots himself when he notice we are also arcanists. The seven humans are dead, and behind ??? there are arcanists uncountient. While they talk, APPLe notice a shadow, ??? holding a ritual, going to take the arcanists away. ??? gifts us with **Stock Gift Agreement** for killing Adam for her. Sonetto don't want stolen goods as gifts, but Vertin notices an address on the seal: Polypotion Bar, The Walden. They head to The Walden, hoping it will be the awnser to their questions.
 
 ---
 
 ¹ - There is a cute note where APPLe states that he won't violate the Statute of Child Rights. That is the reason that when child are defeated in the game they don't die, but quit running.
 
 ² - Regulus is an arcanist talent rated S.
+
+³ - Currency used only by arcanists.
