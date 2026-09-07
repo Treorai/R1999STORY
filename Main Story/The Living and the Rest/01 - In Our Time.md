@@ -22,6 +22,16 @@ Sonetto congratulates us for ca... for gaining Regulus' trust, saying that when 
 Regulus is pissed. The institution Vertin told her about is a place where the Storm can be avoided, free use of arcane skill is guaranteed, and Dr. Papper is free for 365 days. Apple states that Pirate Regulus must not be interested in a place full of serious old men, but Sonetto - weirdly - says the Foundation is acctually fun, not like that.  
 Vertin explains that she inveted them to join the St. Pavlov Foundation, as for Dr. Papper, Sonetto will find a way, so Regulus agrees to join us.
 
+## 1-3 To the New World
+
+APPLe - stating that as the foundation don't fully trust Regulus, she also does not - asks vertin to tell the stories from the past.  
+The Foundation is currently the charity that can provide the best treatment for arcanists. Every few years, they select talented arcanists frm children around the world. They go to orphanages and admonition centers, and even prisons in detention centers. Vertin was also one of them. Vertin has a blurred memory of 1999 when the storm cames; she sees her mother, placed on a laboratory bed, surrounded by many medical staff. She remember them shouting her and her mother's names, and then she can't remember anything else; latter, the official answer for Vertin when she looks for her mother is "No such person". Vertin has no intention to make enemies of the Foundation, just wan't the truth about 1999. Vertin said that would let Regulus go, but she decides to join Vertin. She don't want to be reversed, so better stick to the Foundation and investigate. Regulus is kind of exited, so Vertin tells her to come back as soon as her finish the registration. The Foundation is open to public but still heavily guarded. Regulus tells APPLe to do something else, and start whispering.  
+Sonetto calls Vertin to talk.
+
+## 1-4 Chicago Rescue
+
+
+
 ---
 
 ¹ - There is a cute note where APPLe states that he won't violate the Statute of Child Rights. That is the reason that when child are defeated in the game they don't die, but quit running.
