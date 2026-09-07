@@ -50,7 +50,19 @@ They hear a break sound outside, and 3 gunshots. They are surprised because it's
 
 ## 1-6 The Rosa Killer  
 
-Sonetto finds ??? killing the gangsters, and asks her why she is doing it, which is because they want to kill the arcanists. The man she killed was Frank Gusenberg. Next on the list is Adam Heyer. His weapon is not shooting at ???. Verting rescues Adam. Adam shoots himself when he notice we are also arcanists. The seven humans are dead, and behind ??? there are arcanists uncountient. While they talk, APPLe notice a shadow, ??? holding a ritual, going to take the arcanists away. ??? gifts us with **Stock Gift Agreement** for killing Adam for her. Sonetto don't want stolen goods as gifts, but Vertin notices an address on the seal: Polypotion Bar, The Walden. They head to The Walden, hoping it will be the awnser to their questions.
+Sonetto finds Schneider killing the gangsters, and asks her why she is doing it, which is because they want to kill the arcanists. The man she killed was Frank Gusenberg. Next on the list is Adam Heyer. His weapon is not shooting at Schneider Verting rescues Adam. Adam shoots himself when he notice we are also arcanists. The seven humans are dead, and behind Schneider there are arcanists uncountient. While they talk, APPLe notice a shadow, Schneider holding a ritual, going to take the arcanists away. Schneider gifts us with **Stock Gift Agreement** for killing Adam for her. Sonetto don't want stolen goods as gifts, but Vertin notices an address on the seal: Polypotion Bar, The Walden. They head to The Walden, hoping it will be the awnser to their questions.
+
+### Trail - A wrinkled public notice marked with the latest news
+
+The *Moon Post of Arcanum* specializes in reporting news of the arcanist world with a circulation of over 500k copies. Its parent company Great Lakes Media Company was forced to stop its publication in September 1928 due to anonymous reports to relevant authorities and the emergence of radio stations. The court has reached the verdict of terminating the bankruptcy of the Great Lakes Media Company.
+
+## 1-7 Scorched Woods
+
+The story briefly switches to The Walden, where mysterious people are discussing an upcoming gathering and an important "young lady." They are also talking about politics, alcohol production, and, importantly, creating an impressive Storm.  
+Sotheby preparing to visit The Walden. She is excited because Duke Ellington's jazz orchestra is performing there. Her caretaker, Mr. Karson, repeatedly warns her to be careful: don't drink, don't talk to strangers, and don't cause trouble. Sotheby, however, is much more interested in going on her own adventure.  
+Meanwhile, Vertin, Sonetto, and APPLe are traveling through the Scorched Woods. The forest is extremely strange, with dead plants, charred trees, and almost no sign of life. The environment feels destroyed by a massive fire. Vertin teases Sonetto by telling a ghost story about people who died in a historical forest fire and supposedly became ghosts haunting the woods. They hear strange noises behind them, and fight a ghost.
+
+## 1-8 Druvis III
 
 ---
 
